@@ -1,1 +1,1 @@
-# MoGo
+https://diljararozalka.github.io/MoGo/
